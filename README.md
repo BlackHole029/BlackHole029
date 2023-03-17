@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @BlackHole029
 - 👀 I’m interested in whatever I'm interested in
-- 🌱 I’m currently learning stuff
+- 🌱 I’m currently learning stuff that I am currently learning
 - 💞️ I’m looking to collaborate on stuff that I have been coerced to work on
 - 📫 How to reach me ... don't :) 
 
